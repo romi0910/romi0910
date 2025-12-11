@@ -66,7 +66,7 @@ I’m eager to work on real-world engineering challenges, learn modern stacks, a
 
 ## 📫 **Connect With Me**
 
-📍 Etobicoke, Toronto, ON
+📍 Mississauga, Toronto, ON
 📧 **[romiyaantony14@gmail.com](mailto:romiyaantony14@gmail.com)**
 🔗 **LinkedIn:** [www.linkedin.com/in/romiya-antony-a8a133346](http://www.linkedin.com/in/romiya-antony-a8a133346)
 💻 **GitHub:** *(Add your GitHub link once your profile is ready!)*
